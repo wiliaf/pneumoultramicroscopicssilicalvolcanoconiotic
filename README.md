@@ -6,7 +6,7 @@
 
 ✉️ 00001116128913sp@al.educacao.sp.gov.br (CONTACT EMAIL)
 
-![](https://media1.tenor.com/m/PmpiSvg8bDAAAAAC/i-hired-this-cat-to-stare-at-you-hired.gif). ![](https://media.tenor.com/D6ewisp89HIAAAAM/this-cat-i-have-hired-this-cat-to-stare-at-you.gif).
+![](https://media.tenor.com/zZBeekcxu_EAAAAM/cat-silly.gif).
 
 
 
