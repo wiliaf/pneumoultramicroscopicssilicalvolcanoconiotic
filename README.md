@@ -1,14 +1,13 @@
-🌙 𝔴𝔬𝔯𝔨𝔦𝔫𝔤 𝔬𝔫 𝔱𝔥𝔢 𝔴𝔢𝔢𝔨𝔢𝔫𝔡 𝔩𝔦𝔨𝔢 𝔲𝔰𝔲𝔞𝔩       ![](https://media.tenor.com/xo3_3gzLaPwAAAAj/cat-cube-kitten.gif)
+🌙 𝔴𝔬𝔯𝔨𝔦𝔫𝔤 𝔬𝔫 𝔱𝔥𝔢 𝔴𝔢𝔢𝔨𝔢𝔫𝔡 𝔩𝔦𝔨𝔢 𝔲𝔰𝔲𝔞𝔩
 
+⛷️ I can't program (poggers :o)
 
-⛷️ I can't program (poggers :o)       ![](https://media.tenor.com/xo3_3gzLaPwAAAAj/cat-cube-kitten.gif)
+🖥️ vs.code programer
 
+✉️ 00001116128913sp@al.educacao.sp.gov.br (CONTACT EMAIL)
 
-🖥️ vs.code programer       ![](https://media.tenor.com/xo3_3gzLaPwAAAAj/cat-cube-kitten.gif)
-
-
-✉️ 00001116128913sp@al.educacao.sp.gov.br (CONTACT EMAIL)       ![](https://media.tenor.com/xo3_3gzLaPwAAAAj/cat-cube-kitten.gif)
-
+![](https://media1.tenor.com/m/gGLMhzfaTZYAAAAC/hehe-silly-milly-cat.gif)
+ I LOVE MILLY SHES SO SILLY!!!!1111!!!1!!!111!!!!1!!1!1!!11
 
 
 
