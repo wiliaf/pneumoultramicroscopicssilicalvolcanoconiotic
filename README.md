@@ -6,7 +6,7 @@
 
 ✉️ 00001116128913sp@al.educacao.sp.gov.br (CONTACT EMAIL)
 
-![](https://media.tenor.com/xo3_3gzLaPwAAAAj/cat-cube-kitten.gif).
+![](https://media.tenor.com/xo3_3gzLaPwAAAAj/cat-cube-kitten.gif)
 
 
 
