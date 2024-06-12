@@ -2,19 +2,14 @@
 
 ⛷️ I can't program (poggers :o)
 
-🖥️ vs.code programer
+🖥️ aprentice programmer
 
 ✉️ 00001116128913sp@al.educacao.sp.gov.br (CONTACT EMAIL)
 
+♨️ my programms:
+
+
+
+
 ![](https://media1.tenor.com/m/gGLMhzfaTZYAAAAC/hehe-silly-milly-cat.gif)
  I LOVE MILLY SHES SO SILLY!!!!1111!!!1!!!111!!!!1!!1!1!!11
-
-
-
-
-
-
-
-
-
-
